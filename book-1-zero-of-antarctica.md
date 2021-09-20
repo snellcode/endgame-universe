@@ -1,3 +1,5 @@
+![Cosmic Expanse](images/cosmic-expanse.jpeg)
+
 # Chapter 1 — The Birth of Zero
 
 The Human world had long known of the vast spaces beyond the ring of Antarctica. Over hundreds of generations little changed. The garbage just gets pushed further and further out. Over the long years, a new form of life found itself a home within the waste of humanity. Similar in form to Human, but born not of Earth.
