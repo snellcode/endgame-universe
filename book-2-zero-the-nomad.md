@@ -1,3 +1,5 @@
+![RAAT](images/raat.jpeg)
+
 # Chapter 1 — Continued from “Zero of Antarctica”
 
 Zero was scared, his face wet with tears, speeding on his bike across the Cosmic Expanse. Far in the distance, the great Garbage Mountains encircled him. Ahead of him, and getting closer by the minute, the Main Pipe topped with it’s defense turrets, and a Radar Tower so large and tall, Zero already had to look up to see the red blinking lights near its top.
