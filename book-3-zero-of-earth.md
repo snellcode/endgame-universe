@@ -1,3 +1,5 @@
+![Flatearth](images/flatearth.jpeg)
+
 # Chapter 1 — The Beacon Ritual (Continued from Zero the Nomad)
 
 “It’s time, and we’re safe here, we have to call” said Wedge. Minus checked the time “Yep, better get used to this I guess”. Wedge slowed to a stop on the ice plains of the Cosmic Expanse. Large jagged rocks jutting out here and there covered in ice and snow. The Garbage Mountains behind them now. Wedge remembered the extra Beacons. “Hey Sami, grab a Beacon from the back? You just got promoted!”. Sami had been drifting between crying and sleeping, and had a deep frown on her face as she glared at Wedge. Sami was not impressed with the attempt at humor, but grudgingly agreed.
