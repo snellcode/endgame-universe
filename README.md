@@ -1,3 +1,5 @@
 # endgame-universe
 
-Flat Earth Science Fiction
+Welcome to the Endgame Universe. 
+
+Flat Earth, Hard Science Fiction, SIGINT Fantasy.
