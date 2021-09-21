@@ -1,8 +1,8 @@
 ![RAAT](images/raat.jpeg)
 
-# Chapter 1 — Continued from “Zero of Antarctica”
+# Chapter 1 — No Turning Back (Continued from “Zero of Antarctica”)
 
-Zero was scared, his face wet with tears, speeding on his bike across the Cosmic Expanse. Far in the distance, the great Garbage Mountains encircled him. Ahead of him, and getting closer by the minute, the Main Pipe topped with it’s defense turrets, and a Radar Tower so large and tall, Zero already had to look up to see the red blinking lights near its top.
+Zero was scared, his face wet with tears, speeding on his bike across the Cosmic Expanse. Far in the distance, the Great Garbage Mountains encircled him. Ahead of him, and getting closer by the minute, the Main Pipe topped with it’s defense turrets, and a Radar Tower so large and tall, Zero already had to look up to see the red blinking lights near its top.
 
 Zero had escaped the attack on his farm, but now must live as an Antarcan Nomad. His Beacon broken, with little chance of finding his people, he must now bring the war back to the Humans. So steadily he rides over the ice sheet, weaving between jutting rocks covered in ice and snow. On and on towards the Main Pipe and Radar Tower.
 
