@@ -2,21 +2,17 @@
 
 # Chapter 1 — The Birth of Zero
 
-The Human world had long known of the vast spaces beyond the ring of Antarctica. Over hundreds of generations little changed. The garbage just gets pushed further and further out. Over the long years, a new form of life found itself a home within the waste of humanity. Similar in form to Human, but born not of Earth.
+The Human world had long known of the vast spaces beyond the ring of Antarctica. Over hundreds of generations little changed. The garbage just gets pushed further and further out. Huge vehicles move it into mounds, and over time form the Great Garbage Mountains. 
 
-Born of the Cosmic Expanse beyond the last Human sewer pipes and vehicles. Born with pulsing blue veins behind their ears. Resistant to cold, bitter, but stoic, these people are the Antarca, the Cold Ones, the Garbage Monsters. Tales of them were told among Humans. Antarcans had their myths as well.
+Over the long years, a new form of life found itself a home within the waste. Similar in form to Human, but born not of Earth. Born of the Cosmic Expanse beyond the last Human sewer pipes and vehicles. Born with pulsing blue veins behind their ears. Resistant to cold, bitter, but stoic, these people are the Antarca, the Cold Ones, the Garbage Monsters. Tales of them were told among Humans. Antarcans had their myths as well.
 
 For the Antarcan, there was no greater dream than to break into Earth. To live near the warm beaches instead of the cold garbage. They hated the Humans, and hoped to replace them on Earth some day. The desperate and nomadic often made the attempt. None returned, but the remaining held out hope that some made it to Earth.
 
 The Humans showed no mercy to the Antarcans. The veins behind the ears always give them away. Human guards are ordered to terminate on site. Attempts to talk had long been abandoned. Humans saw Antarcans as the evil result of the cold garbage world they come from.
 
-On a day like any other, with the massive sewer pipes belching out their filth, the distant clanking and rumbling of machinery, an Antarcan child was born.
+On a day like any other, with the massive sewer pipes belching out their filth, the distant clanking and rumbling of machinery, an Antarcan child was born. They named him Zero since he was so cold, a good omen among Antarcans. This means the child is healthy and very resistant to cold. The pulsing blue veins behind the ears mark him for life as Antarcan, loathed and feared by all Humanity.
 
-They named him Zero since he was so cold, a good omen among Antarcans. This means the child is healthy and very resistant to cold. The pulsing blue veins behind the ears mark him for life as Antarcan, loathed and feared by all Humanity.
-
-Down underground in a makeshift Geothermal Farm, Zero grows up as well as any of his kind can hope for. Not living as a nomad like many, but with roots, a family and a home. It is with farm communities like this the Antarcans hope to shape a new destiny farther and farther away from the Humans.
-
-Far out into the deep cold plains of the Cosmic Expanse, where no trace of Humans or their filth can be found. This is one destiny for Antarcans, but it will not be the one chosen for Zero.
+Down underground in a makeshift Geothermal Farm, Zero grows up as well as any of his kind can hope for. Not living as a nomad like many, but with roots, a family and a home. It is with farm communities like this the Antarcans hope to shape a new destiny farther and farther away from the Humans. Far out into the deep cold plains of the Cosmic Expanse, where no trace of Humans or their filth can be found. This is one destiny for Antarcans, but it will not be the one chosen for Zero.
 
 # Chapter 2 — A Chance Meeting
 
