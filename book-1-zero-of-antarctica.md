@@ -12,7 +12,7 @@ The Humans showed no mercy to the Antarcans. The veins behind the ears always gi
 
 On a day like any other, with the massive sewer pipes belching out their filth, the distant clanking and rumbling of machinery, an Antarcan child was born. They named him Zero since he was so cold, a good omen among Antarcans. This means the child is healthy and very resistant to cold. The pulsing blue veins behind the ears mark him for life as Antarcan, loathed and feared by the Humans.
 
-Down underground in a makeshift Geothermal Farm, Zero grows up as well as any of his kind can hope for. Not living as a nomad like many, but with roots, a family and a home. It is with farm communities like this the Antarcans hope to shape a new destiny farther and farther away from the Humans. Far out into the deep cold plains of the Cosmic Expanse, where no trace of Humans or their filth can be found. This is one destiny for Antarcans, but it will not be the one chosen for Zero.
+Down underground in a makeshift Geothermal Farm, Zero grows up as well as any of his kind can hope for. Not living as a nomad like many, but with roots, a family and a home. It is with farm communities like this the Antarcans hope to shape a new destiny farther away from the Humans. Far out into the deep cold plains of the Cosmic Expanse, where no trace of Humans or their filth can be found. This is one destiny for Antarcans, but it will not be the one chosen for Zero.
 
 # Chapter 2 — A Chance Meeting
 
