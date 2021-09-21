@@ -24,7 +24,9 @@ So up she went, and picked up rock after rock, though she only wanted to bring b
 
 Throwing aside the current rock, she rushed over and picked up the new rock. This went on for a while as she moved up through the gnarled trees of the tiny scrub forest by the river. Up out onto the edge of the Cosmic Expanse.
 
-Sharp rocks covered in ice and snow jutted out nearby. Far in the distance the great Garbage Mountains encircled her. The little river that lead down to the farm was becoming ever farther away. But so consumed was Sami with her mission, she didn’t notice she had stumbled right into a two man Human Scout Team.
+Sharp rocks covered in ice and snow jutted out nearby. Far in the distance the Great Garbage Mountains encircled her. The little river that lead down to the farm was becoming ever farther away. But so consumed was Sami with her mission, she didn’t notice she had stumbled right into a two man Human Scout Team.
+
+# Chapter 3 — Scouts
 
 The team consisted of a Sniper and Spotter. They had been scouting the small forest and river, but had found nothing. They were resting and preparing to return to base. Their mission is to find a potential hive in the warmer low lands. Once they find a hive, they are ordered to call in the Rapid Air Assault Team. They have to work quickly, because Antarcans are always on high alert for a Human raid.
 
@@ -34,7 +36,7 @@ The Sniper was clumsily but persistently cleaning his gun with ice cold hands. H
 
 Realizing she had just given herself away with her movements, Sami quickly turned and ran back towards home. The Sniper had by now lifted his sidearm to shoot, but the Spotter hit his hand away, sending the shot wide. “Call it in” said the Spotter, holding up his tracker display. The green blip was strong and moving. The Sniper nodded, and called in the location to the Rapid Air Assault Team. “That little bug will lead us all the way home to mama!” said the Sniper, laughing.
 
-# Chapter 3 — The Birth of Minus
+# Chapter 4 — The Birth of Minus
 
 When Zero was born, many were impressed with him. His coldness to the touch, slow shallow breathing, strong pulsing blue behind the ears. They celebrated and cheered to his health. But two years later when his sister was born, it was to total shock and amazement. She was as cold as ice, and even her skin had a blue glow to it, instead of the common Antarcan grey hues of her parents.
 
@@ -46,7 +48,7 @@ She always knew the answers in school, but never did her homework. The teachers 
 
 Perhaps Minus had a foreboding sense of danger on the way. She was in her room packing her bags as Sami was running down the river bank and into the maze of scrub forest that hid the entrance to the farm.
 
-# Chapter 4 — Smoke Break
+# Chapter 5 — Smoke Break
 
 As Minus was packing her bags, Zero was just headed topside for a smoke. He had a particularly fragrant variety of Kush that his Engineer friend Wedge grows. Zero loves going topside for his smoke breaks, and looking out on their little scrub forest and the garbage hills far beyond. Then joining Minus for a few minutes in silence, he often imagines life out there on the Cosmic Expanse as a Nomad. One that can never return home. Nomads live a life of total war, surviving day to day until run down by Humans. Some even try to climb up the huge sewer pipes and break into Earth.
 
@@ -56,7 +58,7 @@ As Sami scrambled along the river bank, and down through the scrub forest, she f
 
 “Stay right here! … but hide! … I’ll be back!” stammered Zero, as he opened the rusty iron hatch, and sped off down to the Engineering Lab. Sami hid a few feet away behind a bolder, and tried to make herself as small as possible. As she looked down to her feet, she saw right there in front of her a small but quite round rock. It wasn’t as big as the one in her dreams, but she happily grabbed it up to give to Mom later. Sami patiently waited there for Zero to return.
 
-# Chapter 5 — Go Time
+# Chapter 6 — Go Time
 
 Zero wondered if Sami would be OK. Should he have brought her down? No, if Humans are on the way, we have no time… she’s already topside… just tell Wedge, grab the Beacon, grab Sami… hit the road on a bike over the Cosmic Expanse… As Zero went he said to himself, “The thing is to be fast, faster than the Humans. That’s how we stay ahead… that’s how we survive…”. As Zero ran into the Engineering Lab, Wedge jumped up from his large office chair and shouted “It Works!”.
 
@@ -68,7 +70,7 @@ Beacon, check. Go Bag, check. “Um… what else?” As Zero looked around his r
 
 Minus raised her Beacon, and instinctively so did Zero. They knew, as long as we hold these Beacons, we can reunite. Sometimes it takes days, sometimes years, but the Beacon gives hope to all Antarcans.
 
-# Chapter 6 — Main Alarm
+# Chapter 7 — Main Alarm
 
 An earth shattering boom followed by screeching of metal on metal tore through the air. Wedge had hit the Main Alarm, and opened the Garage. From there vehicles of all shapes sped away, but most took bikes. The only rules: One, don’t stop for anything. Two, never let a Human touch a working Beacon. Just then Wedge came crashing along the river bank in his Jeep. “There you are! hop in!” shouted Wedge. They all hopped quickly into the Jeep, Zero in the front with Wedge, and Minus and Sami in the back seats. Wedge started driving up the river bank towards the Cosmic Expanse.
 
@@ -78,7 +80,7 @@ As they began to move, a shot whizzed by. The Sniper and Spotter had followed Sa
 
 The Sniper laughed. “What the hell is that bug doing? I could swear I hit it twice now, but it’s still moving.”. The Spotter pointed and yelled “The Jeep, quick, they’re getting away!”, but the Sniper was already shooting round after round towards Zero as he was escaping towards the Garage. “Damn! Damn! Damn!” Yelled the Sniper as he gathered up his gear, and Zero moved out of view around a corner. “Not today, this bug is mine” said the Sniper, and he went scrambling down the hill towards the river bank following Zero. The Spotter shook his head, and followed the Sniper.
 
-# Chapter 7 — Nomad Forever
+# Chapter 8 — Nomad Forever
 
 The Antarcans had many vehicles fueled and ready for just such an event. Zero grabbed a helmet from the rack, hopped on a fast looking bike. He fiddled with the controls until he remembered how to start it. His plan was to drive up the river bank, then drive towards the scout team to distract them. Tears streamed down his cheeks as he took his Beacon in both trembling hands, and broke it, throwing the pieces to the ground. “Nomad Forever” he mumbled quietly to himself. He then realized he still had his Go Bag, and in there, the bag of Kush. “Not all bad, then…” he continued mumbling as the bike gained speed out the Garage and up the river bank.
 
