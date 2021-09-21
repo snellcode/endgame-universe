@@ -46,7 +46,7 @@ She always knew the answers in school, but never did her homework. The teachers 
 
 Perhaps Minus had a foreboding sense of danger on the way. She was in her room packing her bags as Sami was running down the river bank and into the maze of scrub forest that hid the entrance to the farm.
 
-# Chapter 4 — Evacuation
+# Chapter 4 — Smoke Break
 
 As Minus was packing her bags, Zero was just headed topside for a smoke. He had a particularly fragrant variety of Kush that his Engineer friend Wedge grows. Zero loves going topside for his smoke breaks, and looking out on their little scrub forest and the garbage hills far beyond. Then joining Minus for a few minutes in silence, he often imagines life out there on the Cosmic Expanse as a Nomad. One that can never return home. Nomads live a life of total war, surviving day to day until run down by Humans. Some even try to climb up the huge sewer pipes and break into Earth.
 
@@ -68,15 +68,17 @@ Beacon, check. Go Bag, check. “Um… what else?” As Zero looked around his r
 
 Minus raised her Beacon, and instinctively so did Zero. They knew, as long as we hold these Beacons, we can reunite. Sometimes it takes days, sometimes years, but the Beacon gives hope to all Antarcans.
 
-# Chapter 6 — Zero the Nomad
+# Chapter 6 — Main Alarm
 
-An earth shattering boom followed by screeching of metal on metal tore through the air. Wedge had hit the Main Alarm, and opened the Garage. From there vehicles of all shapes sped away, but most took bikes. The only rules: 1. Don’t stop for anything. 2. Never let a Human touch a working Beacon. Just then Wedge came crashing along the river bank in his Jeep. “There you are! hop in!” shouted Wedge. They all hopped quickly into the Jeep, Zero in the front with Wedge, and Minus and Sami in the back seats. Wedge started driving up the river bank towards the Cosmic Expanse.
+An earth shattering boom followed by screeching of metal on metal tore through the air. Wedge had hit the Main Alarm, and opened the Garage. From there vehicles of all shapes sped away, but most took bikes. The only rules: One, don’t stop for anything. Two, never let a Human touch a working Beacon. Just then Wedge came crashing along the river bank in his Jeep. “There you are! hop in!” shouted Wedge. They all hopped quickly into the Jeep, Zero in the front with Wedge, and Minus and Sami in the back seats. Wedge started driving up the river bank towards the Cosmic Expanse.
 
 As they began to move, a shot whizzed by. The Sniper and Spotter had followed Sami, and taken position on a hill near the river covering the escaping vehicles. The Human Scouts hoped to take advantage of the confusion, and kill off a few escaping Antarcans while the Assault Team was on its way. Zero’s heart sank, he knew somebody had to confront the scout team, so that Wedge, Minus, Sami and the rest could make a clean escape. Not to mention the risk of those Human Scouts finding a working Beacon. Zero made his decision, and opened the door of the moving Jeep. Prepared to jump Zero shouted “Go on, I’ll take care of the Scouts!”. Seeing this Wedge Screeched the Jeep to a stop.
 
 “Are you crazy? Get in and close the door!” yelled Wedge, but Minus put her hand on Wedge’s shoulder, and said “No”. A tear was rolling down her cheek as she turned and looked at Zero said “Go my brother, you will know what to do.”. As another shot hit the side of the Jeep, Zero rolled out, and Wedge floored it. Zero ran back along the river bank towards the Garage. As he both hoped and feared, the Sniper was now shooting at him. “Good, come for me…” he said to himself as he ran.
 
 The Sniper laughed. “What the hell is that bug doing? I could swear I hit it twice now, but it’s still moving.”. The Spotter pointed and yelled “The Jeep, quick, they’re getting away!”, but the Sniper was already shooting round after round towards Zero as he was escaping towards the Garage. “Damn! Damn! Damn!” Yelled the Sniper as he gathered up his gear, and Zero moved out of view around a corner. “Not today, this bug is mine” said the Sniper, and he went scrambling down the hill towards the river bank following Zero. The Spotter shook his head, and followed the Sniper.
+
+# Chapter 7 — Nomad Forever
 
 The Antarcans had many vehicles fueled and ready for just such an event. Zero grabbed a helmet from the rack, hopped on a fast looking bike. He fiddled with the controls until he remembered how to start it. His plan was to drive up the river bank, then drive towards the scout team to distract them. Tears streamed down his cheeks as he took his Beacon in both trembling hands, and broke it, throwing the pieces to the ground. “Nomad Forever” he mumbled quietly to himself. He then realized he still had his Go Bag, and in there, the bag of Kush. “Not all bad, then…” he continued mumbling as the bike gained speed out the Garage and up the river bank.
 
