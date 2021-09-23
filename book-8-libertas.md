@@ -1,4 +1,4 @@
-# Book 8 — Libertas
+# Book 8: Libertas
 
 ![Libertas](images/libertas.jpeg)
 
