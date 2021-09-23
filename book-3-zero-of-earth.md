@@ -1,6 +1,8 @@
+# Book 3: Zero of Earth
+
 ![Flatearth](images/flatearth.jpeg)
 
-# Chapter 1 — The Beacon Ritual (Continued from Zero the Nomad)
+## Chapter 1: The Beacon Ritual
 
 “It’s time, and we’re safe here, we have to call” said Wedge. Minus checked the time “Yep, better get used to this I guess”. Wedge slowed to a stop on the ice plains of the Cosmic Expanse. Large jagged rocks jutting out here and there covered in ice and snow. The Garbage Mountains behind them now. Wedge remembered the extra Beacons. “Hey Sami, grab a Beacon from the back? You just got promoted!”. Sami had been drifting between crying and sleeping, and had a deep frown on her face as she glared at Wedge. Sami was not impressed with the attempt at humor, but grudgingly agreed.
 
@@ -8,7 +10,7 @@
 
 The pulse from the three Beacons swept out far and wide so that any Antarcan who was watching could see the blip. “Time” said Minus, and let her thumbs rest. “OK Sami, now just watch, and tell me if you see any blips?” said Wedge. The three of them sat for a few minutes watching their Beacons. No blips this time, but they would try again at the next allotted time. “Must be all still running” said Wedge and continued “We’re bound to get some blips, a lot of bikes made it”. Minus agreed “Yeah, they will want to be really sure they don’t have a tail”. Minus then scanned the horizon behind them “I say we stay put then, try to get at least a blip or two?”. Wedge nodded, and they made camp right there on the Cosmic Expanse.
 
-# Chapter 2 — Stretch
+## Chapter 2: Stretch
 
 Stretch heard many things in his little hide away behind a wall. The Human raid was quick and methodical. He heard them marching around, back and forth. Flash bangs, a few scattered shots, as they moved from room to room. Eventually the troops made it down to the lower level where Stretch was hiding.
 
@@ -24,7 +26,7 @@ Stretch pulled back for a moment. He wasn’t sure he wanted to be seen. He felt
 
 He decided that if they get out of this, he would give his Beacon to Vee. Hopefully that would be enough to be forgiven. “I’ll make things right” he muttered to himself as he followed Vee.
 
-# Chapter 3 — The Swap
+## Chapter 3: The Swap
 
 Zero had been patiently scaling the walls below the Radio Tower for hours. He made a deal with himself “I will not look down…” he continued mumbling over and over. Patiently he went from hold to hold, using any broken parts of the wall, and resting when he could. When he reached the top and sat down to catch his breath, he felt exhilarated. Out of all the things he’d been through, that was by far the worst. He resolved himself now “I’m getting in… after that shit? Oh I’m getting in…”. Zero scurried his way around the edge of the wall, looking for a way to get in deeper.
 
@@ -34,7 +36,7 @@ Zero took the guard’s hat, gun, and security dongle. He found a dark green rai
 
 Getting him up into the pipe was difficult, and he was starting to regain consciousness. Zero put all his effort in, even as the Human was fighting back. “God damn bug, I’ll kill you! You hear me?” yelled the Human, his voice quieter by the second. Zero straightened up, adjusted his hat, and walked briskly into the core of the Human base.
 
-# Chapter 4 — On the Road Again
+## Chapter 4: On the Road Again
 
 Antarcans have a natural fascination with vehicles of all types, but especially bikes. Out on the Cosmic Expanse, it’s not like you’re going to walk to the corner store.
 
@@ -48,7 +50,7 @@ Zero took this opportunity to walk quickly to the passenger door of the truck. T
 
 “Have a good one, and don’t stop for nothing in the slums, no matter what you hit, OK pal?” laughed the Human as he waved and strolled away. Zero smiled, nodded politely and waved. Once the Human was looking away, Zero hopped into the Transport, and shifted over to the wheel.
 
-# Chapter 5 — Gate Crasher
+## Chapter 5: Gate Crasher
 
 Zero hovered the security dongle over everything he could think of, nothing worked. He could feel the pedals just fine, and make out some of the other controls, but where’s the starter? Just then a Human comes right out of the door and looks Zero right in the eye. The Human starts yelling “Hey, this is my ride, what gives?”. Zero starts pushing every button, lever, switch.
 
@@ -66,7 +68,7 @@ He could hear sirens in one direction, but then also another, and had no idea wh
 
 Then using Antarcan techniques, slowed his breathing down and went into stasis. He would stay like this for many hours, waiting for any pursuing Humans to lose track of him.
 
-# Chapter 6 — Human Walk
+## Chapter 6: Human Walk
 
 Zero woke to the sounds of some kind of alarm, and then realized it was just a bird. This place would take some getting used to, “better take it slow, blend in…” he mumbled. He took a quick toke of Kush, then started peering out of the dumpster. It was still light out, but a strange hazy light. The sunset glowed with a strange aura here. He decided to wait until dark, and then try to find some clean clothes.
 
@@ -76,7 +78,7 @@ Zero doesn’t miss a beat. He slides in the window, grabs the first dress he se
 
 “OK, now we’re talking…” Zero said to himself, quite pleased with his progress. Now he just had to blend in… He decided to start by affecting a “Human Walk”, something that says “I’m very busy and important”. He tripped and nearly fell over. “Think Human” he said to himself as he breathed in slowly, “THINK busy and important”. He imagined he was one of the busy dock workers. He lifted his chin and began walking with a quick no nonsense stroll. “Good enough for now” he said to himself as he walked through the city streets into the night.
 
-# Chapter 7 — Paradise
+## Chapter 7: Paradise
 
 Zero walks all night, and into the next day. Just weaving his way randomly. He notices the different areas, the parks, the shops, the apartments. He finds himself gravitating to the parks, and their paths. Then he sees something strange out in the distance. “Ocean” he whispers as he turns towards it as if pulled by a magnet. Zero can’t help but cry tears of joy as he is walking along the boardwalk. His Antarcan boots clomping with each step. He then imagined taking off his boots, and putting his feet in that water.
 
