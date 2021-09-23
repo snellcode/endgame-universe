@@ -1,6 +1,8 @@
+#Book 2: Zero the Nomad
+
 ![RAAT](images/raat.jpeg)
 
-# Chapter 1 — No Turning Back (Continued from “Zero of Antarctica”)
+## Chapter 1: No Turning Back
 
 Zero was scared, his face wet with tears, speeding on his bike across the Cosmic Expanse. Far in the distance, the Great Garbage Mountains encircled him. Ahead of him, and getting closer by the minute, the Main Pipe topped with it’s defense turrets, and a Radar Tower so large and tall, Zero already had to look up to see the red blinking lights near its top.
 
@@ -8,7 +10,7 @@ Zero had escaped the attack on his farm, but now must live as an Antarcan Nomad.
 
 Earlier while Zero was still at the farm, Human HQ at the Radar Tower gets a call from a Scout team. The Scouts have been investigating a nearby scrub forest, and potential Antarcan Hive. These lowland rivers and scrub forests provide ideal locations for Geothermal Farms. The Sniper called in a location confirmed to be an Antarcan Hive, and so the Rapid Air Assault Team was called in.
 
-# Chapter 2 — Rapid Air Assault Team
+## Chapter 2: Rapid Air Assault Team
 
 Ray was on his regular shift when the call came in. “Blip Confirmed! RAAT on the way!” replied Ray in his excitement, and slammed down the phone. His heart racing, he tried to stay focused. This was far from a typical day on his shift. Day after day sitting by the phone, routine calls from Scouts, “Nothing found, heading back” or some variation. Ray sprinted across the Hanger Complex, to Launch Control. He could have just called it in, but he knows how slow and difficult that can be. Instead he decides to make the dash across the massive hanger directly to the Captain on Guard.
 
@@ -20,7 +22,7 @@ Ray would later remember how strange the next moments felt. As the Captain got o
 
 The thunder of the massive vehicles shook Ray’s legs, and he felt me may go deaf, but did not dare cover his ears. Doing so in front of the Captain seemed like a career limiting move.
 
-# Chapter 3: Refugees
+## Chapter 3: Refugees
 
 “Over there, by the big rock, stop the Jeep” said Minus. “Stop? No way, we gotta Scatter!” replied Wedge and continued driving at top speed away from the incoming Human RAAT. Other vehicles still close by, but bikes breaking off here and there. A large convoy of slower vehicles was nearby to the left, and the large bolder ahead and to the right. “Wedge, she’s tracked, her leg” explained Minus.
 
@@ -30,7 +32,7 @@ Wedge lurches forward as he hits the breaks, and swerves right around the bolder
 
 “OK that’s the worst of it Sami”. Sami was expecting worse, so she smiled at Minus. “OK, we gotta keep moving” said Wedge, as the Helis were getting closer. “We’re good” said Minus as she tossed the tracker out the window. Wedge hit the gas, and veered further right to get clear of the tracker, and separate from the convoy. Wedge knows staying grouped together out here is a good way to get bombed.
 
-# Chapter 4: Last Stand
+## Chapter 4: Last Stand
 
 Before the Human attack, Wedge the Engineer had been living a pretty good life. Often so deep into his work he could forget about the Human threat for hours at a time. Sometimes he smiled to himself, and just said a little prayer of gratitude that he had found his calling amid all this chaos.
 
@@ -46,7 +48,7 @@ Wedge was frustrated, and wished he could talk sense into these people. But with
 
 While most were leaving, the few remaining Antarcans went down to the Armory deep at the bottom of the farm to make their last stand.
 
-# Chapter 5 — Bombing Run
+## Chapter 5: Bombing Run
 
 When the Main Alarm sounded, Stretch was in his room sleeping. Before he had even woke up, he was already grabbing for his Beacon and Go Bag, and stumbling down the hall to the Garage. Yawning as he went, he picked up a helmet and looked for a bike… but then he froze. Fear gripped him like never before. This was not a dream, this was not a drill, this was happening. The thought of going out there, getting blown to bits or shot terrified him.
 
@@ -62,7 +64,7 @@ The bombing was intense, but still many faster vehicles had escaped and scattere
 
 Once the Human Troops have gathered anything useful, and killed any remaining bugs, they will leave. The Bombers will then turn the little scrub forest by the river into a scorched wasteland.
 
-# Chapter 6 — Antarcan After All
+## Chapter 6: Antarcan After All
 
 Early on the day of the attack, Minus was at her usual post. Watching, listening, waiting. She nodded at Sami as she passed, out gathering her rocks again. She tried to remember when she was that age. She then realized how long she’s been doing this, and chuckled to herself. “No way but to go a bit crazy I guess…” she said to herself and smiled. She understood as well as any how hard it can be, and noticed how everyone had their little ways to pass the time. Zero with his Kush, Sami with her rocks, Wedge his tech, and herself?
 
@@ -72,7 +74,7 @@ At first Minus just felt suddenly queasy. She looked around for Sami, but she wa
 
 “Sami?” called Minus as she stood up, and closed the rusty iron hatch. Sami recognized her voice, and peeped out from behind her hiding spot. “I’m hiding!” exclaimed Sami. “Very good hiding spot!” said Minus with great relief “ I would have never found you!”. She walked over and held out her hand to Sami.
 
-# Chapter 7 - Armory
+## Chapter 7: Armory
 
 Vee was older Antarcan woman. When the Evac alarm sounded she was in the mess hall playing cards with her crew. This was a group of Antarcans that had joined the farm a few years ago. They were refugees from another farm that had been raided. They were inseparable and could often be found here drinking, playing cards, or brawling. As the lights and sirens went off, the whole crew looked at Vee.
 
@@ -88,7 +90,7 @@ Vee could handle a lot, but that tunnel terrified her. The thought of getting ha
 
 “Nobody fire, nobody even breath until I say so!” said Vee as they waited, ready to ambush the Humans.
 
-# Chapter 8 - Impossible Dream
+## Chapter 8: Impossible Dream
 
 Zero had been driving a long time, and eventually the shock of recent events wore off. He realized if he kept going he would drive right into the Human perimeter spotlights and turrets. He skidded to a stop, and pulled off his helmet. Throwing his helmet to the ground, he screamed “Why?!”. Without his family and friends and the small comforts of home, he was at a loss for what to do next. His naive childhood dreams of brave Nomads climbing up the Main Pipe into Earth seemed ridiculous now. The light of a new dawn was rising, and in the stark light of day the task seemed utterly impossible.
 
