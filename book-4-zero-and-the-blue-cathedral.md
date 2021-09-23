@@ -54,7 +54,7 @@ Minus feared Sami’s Mom was in the lost convoy, but there was really no way to
 
 When Sami saw her Mom she was beside herself with joy. She ran over and jumped into her Mom’s waiting arms. “I would drive straight up that pipe if you were on Earth my girl” said her Mom.
 
-## Chapter 5 — The Blue Cathedral
+## Chapter 5: The Blue Cathedral
 
 The reunited Antarcan convoy now continued towards the signal. The cold winds blowing and only the lights from the the stars and their vehicles.
 
