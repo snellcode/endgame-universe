@@ -2,4 +2,4 @@
 
 ![Endgame Universe](images/endgame-universe.jpg)
 
-Flat Earth, Hard Science Fiction, SIGINT Fantasy.
+Flat Earth Science Fiction
